@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MohyTheHay
+- 👋 Hi, I’m @MohyHeya
 -    You can call me Mohy
 - 😄 Pronouns: He/Him
 
